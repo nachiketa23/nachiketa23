@@ -71,14 +71,4 @@ I’ve worked on **industry-partnered projects** (e.g., with the Bank of England
 
 ⚡ *Curious, detail-oriented, and driven to transform data into strategic business insights.*  
 
----
-
-## 📫 Let’s Connect  
-- 🌍 Dubai, UAE  
-- 💼 [LinkedIn](https://www.linkedin.com/in/nachiketa-pandey-a347801b4/)  
-- ✉️ Email: nachiketapandey2@gmail.com  
-
----
-
-⚡ *Curious, detail-oriented, and driven to transform data into strategic business insights.*  
 
