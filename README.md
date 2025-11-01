@@ -63,7 +63,7 @@ I’ve worked on **industry-partnered projects** (e.g., with the Bank of England
 ---
 
 ## 📫 Let’s Connect  
-- 🌍 Dubai, UAE  
+- 🌍 London,United Kingdom
 - 💼 [LinkedIn](https://www.linkedin.com/in/nachiketa-pandey-a347801b4/)  
 - ✉️ Email: nachiketapandey2@gmail.com  
 
